@@ -1,6 +1,6 @@
 # ✌ Eai, eu sou o Igor
 
-- 📚 Cursando ADS 1/5
+- 📚 Cursando ADS 2/5
 - 📚 Estudante de inglês 
 
 <div>
